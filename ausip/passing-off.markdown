@@ -61,7 +61,7 @@ Commons law considered passing off a form of fraud. The commons law focus in the
 
 ### Passing Off and Equity
 
-The court of equity were interested in passing off, not as a form of fraud, but in relation to the property aspects, namely the reputation of the trader. The equity court's focus on business reputation is one characteristic which is still central to todays tort of passing off.  
+The court of equity were interested in passing off, not as a form of fraud, but in relation to the property aspects, namely the reputation of the trader. The equity court's focus on business reputation is one characteristic which is still central to today's tort of passing off.  
 
 ## The Elements of Passing Off
 
